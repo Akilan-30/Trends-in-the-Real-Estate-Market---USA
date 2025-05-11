@@ -20,7 +20,7 @@ Year Built vs. Renovated:
 Newer homes or those renovated recently are priced higher than older, non-renovated ones.
 
 
-**_Recommendations:
+** 2) Recommendations:
 **
 Residential Property Investment
 
