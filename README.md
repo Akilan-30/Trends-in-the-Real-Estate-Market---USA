@@ -20,8 +20,10 @@ Year Built vs. Renovated:
 Newer homes or those renovated recently are priced higher than older, non-renovated ones.
 
 
+
 _** 2) Recommendations:
 **_
+
 Residential Property Investment
 
  Invest in regions with rising price trends and active listings – these are signs of healthy residential markets.City’s like – Kirkland, Redmond
